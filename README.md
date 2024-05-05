@@ -1,1 +1,1 @@
-# Eternal-Escapade
+# EternalEscapade
